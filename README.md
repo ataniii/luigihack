@@ -3,4 +3,4 @@
 
 the dev snow deleted all of his videos and the 
 discord, luckly i snagged the latest releese so here you go i dont know
-if its ratted use at youre own risk
+if its ratted use at youre own risk (i have ran it and nothing happened)
